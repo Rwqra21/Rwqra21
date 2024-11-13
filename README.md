@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science 
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on projects or disscussions abt coding or just talk fr
-- 📫 How to reach me 1nst4 : adoraa_rwqr & adorastark751@gmail.com
+- 📫 How to reach me : discord : moonchild2699 & adorastark751@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I acually play guitar and  piano,I like to draw and paint too
 
